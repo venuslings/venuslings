@@ -35,13 +35,10 @@ castella but the topping are uranuslings....hohohohohoho....🤶🤶🤶🤶
 
 
 
-FYI ! 
 
 yes my username is based on venus from solarballs because its cool
 
-yes iam islam actually
 
-more questions of me? talk to me !
 
 
 
